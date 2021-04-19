@@ -1,1 +1,1 @@
-# Pixie-S-Icon-Pack-Term-and-conditions
+# Faded-Icon-Pack-Term-and-conditions
